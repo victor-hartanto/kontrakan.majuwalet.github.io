@@ -1,0 +1,1 @@
+# majuwalet.github.io
